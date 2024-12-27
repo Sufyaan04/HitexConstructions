@@ -1,2 +1,2 @@
 # HItexConstructions
-HItex Constructions , designing your Dream Home 
+Hitex Constructions , designing your Dream Home 
